@@ -6,7 +6,7 @@
 Телефон +7 (985) 094-74-04
 
 
-Почта [Gmail](Nephedov93@gmail.com)
+[Nephedov93@gmail.com](Nephedov93@gmail.com)
 
 
 
